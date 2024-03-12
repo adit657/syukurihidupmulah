@@ -1,0 +1,2 @@
+# syukurihidupmulah
+syukurihidupmulah
